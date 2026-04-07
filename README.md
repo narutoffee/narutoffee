@@ -2,5 +2,5 @@
 
 ![my image](naruto1-removebg-preview.png)
 
-$\small{\textsf{carrd}}$                          $\small{\textsf{discord}}$
+$\small{\textsf{carrd}}$‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $\small{\textsf{discord}}$
 
